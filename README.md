@@ -7,3 +7,4 @@ nigga
 vc sabia que o dublador do shen morreu antes mesmo de gravar as falas?
 é mentira
 f no chat fm
+oiiiiiiiiii
